@@ -1,6 +1,6 @@
 ### Viva auronplay👋
 
-Here are some ideas to get you started:
+Algunas cosas mi bro:
 
 - 🔭 Estudiando en la PFLC
 - 🌱 Busco subir de rango en pou
